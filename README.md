@@ -1,2 +1,2 @@
 # wow_whoah
-I hate everythink about you
+I hate everything about you
